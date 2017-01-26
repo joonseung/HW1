@@ -1,4 +1,0 @@
-Joonseung Rhee
-
-Chicago cubs
-
